@@ -1,1 +1,3 @@
-# .github
+# *Feeling Lost in Life? Embrace the Journey to Self-Discovery and Spiritual Growth*
+## *Discover peace and purpose when feeling lost. Learn to embrace uncertainty as a spiritual gift, find guidance, and grow with meaningful insights inspired by Sadhguru’s wisdom. Start your path to clarity and inner peace today—embrace the journey with faith and courage.* [More details…] (https://spiritualkhazaana.com/web-stories/feeling-lost-in-life/)
+## #FeelingLost #SpiritualAwakening #InnerPeace #SadhguruWisdom #FindYourPurpose #MindfulnessJourney #Sadhguru #LifeJourney #SelfDiscovery #spiritualgrowth #embracethejourney
